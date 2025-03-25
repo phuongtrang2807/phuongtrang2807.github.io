@@ -29,5 +29,5 @@ Hôm nay anh thật sự vui vì bé iu đã thật thà với anh. Anh luôn tr
 
 Anh chúc bé iu ngày mới ngập tràn niềm vui, quên đi chuyện cũ, tự tin vững chãi thật nhiều động lực học tập bé nhó. Anh luôn ở đây, bên cạnh và ủng hộ bé. "Anh thương em Phương Trang nhiều " lắm ❤️❤️❤️❤️❤️❤️❤️
 
-Anh yêu của bé,
+Anh yêu của bé,\
 Minh Nhat Trinh
