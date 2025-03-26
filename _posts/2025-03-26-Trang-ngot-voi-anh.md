@@ -17,7 +17,7 @@ Lúc anh đang viết những dòng này là anh có chút mệt mỏi, anh cũn
 **Với** anh chỉ muốn chờ mong  \
 **Anh** yêu câu nói mặn nồng từ em.
 
-Anh iu chúc bé iu của anh ngày mới nhiều năng lương, học tập thật tốt và cười thật tươi khi đọc được bài thơ này của anh nhó hihi ❤️❤️❤️. Anh nhớ thương bé yêu nhiều lắm, cục cưng của anh ❤️❤️❤️.
+Anh iu chúc bé iu của anh ngày mới nhiều năng lượng, học tập thật tốt và cười thật tươi khi đọc được bài thơ này của anh nhó hihi ❤️❤️❤️. Anh nhớ thương bé yêu nhiều lắm, cục cưng của anh ❤️❤️❤️.
 
 Anh yêu của em bé Phương Trang 2807 ❤️❤️❤️,\
 Minh Nhat Trinh
