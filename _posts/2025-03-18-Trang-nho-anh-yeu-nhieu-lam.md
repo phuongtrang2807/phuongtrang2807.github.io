@@ -14,7 +14,7 @@ Sau khi đổ vào bát chút không tỉnh táo buổi sáng, chút lạnh củ
 
 **Trang** vừa mở mắt dậy \
 Lời tình rơi vào tay \
-Tình này không gió bay… 
+Tình này không gió bay… \
 Tình này là tình thắm?
 
 **Nhớ** ai mò nhớ lắm \
