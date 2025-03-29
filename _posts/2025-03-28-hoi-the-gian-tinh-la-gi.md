@@ -3,7 +3,7 @@ layout: post
 title: Hỡi thế gian tình là chi ?
 subtitle: Một bài thơ viết cho người yêu hay ghen của tôi
 cover-img: /assets/img/Trang7.jpg
-thumbnail-img: /assets/img/Trang1.jpg
+thumbnail-img: /assets/img/Trang16.jpg
 # share-img: /assets/img/path.jpg
 tags: [Anhiu]
 author: Minh Nhat Trinh
