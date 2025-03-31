@@ -23,5 +23,17 @@ Cười lên anh ngắm, ngất mê mất rồi! 💕
 
 Từ giờ bé hứa với anh rồi đấy, bé iu của anh nhất định dù yếu đuối hay xấu hổ tới đâu cũng phải nói ngay cho anh biết nhớ chưaaaaa ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
+Anh đang đi ăn và đọc đi đọc lại bài thơ "Nức Nở" của bé yêu ...
+
+**Gửi Trang bé nhỏ xinh xinh,**  
+Tháng tư về nữa, lòng mình nhớ nhau.  
+Xa xôi gió thoảng mây sầu,  
+Bằng lăng tím ngát một màu chờ ai?  
+
+Bé ơi, đừng khóc nhè hoài,  
+Anh đây vẫn sẽ miệt mài yêu thương.  
+Khoảng cách dù có vấn vương,  
+Ôm em bằng cả con đường nhớ mong. 💕
+
 Anh yêu của bé,  
 Minh Nhat Trinh
