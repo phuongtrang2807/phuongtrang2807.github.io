@@ -22,11 +22,11 @@ Sợ anh biết được mà thêm ngại ngùng.
 Nhưng anh chẳng vội, chẳng ngừng,  
 Vẫn luôn ở đó, thật lòng lắng nghe.  
 Dù là điều khó nói ghê,  
-Anh đều thấu hiểu, chẳng hề chê bai  
-Trang ơi, đừng giấu gì hoài,
-Yêu em – là hiểu, là dài, là thương.
-Anh đây, như gió bên đường,
-Nhẹ nhàng ôm lấy mọi vương vấn lòng.
+Anh đều thấu hiểu, chẳng hề chê bai   
+Trang ơi, đừng giấu gì hoài,  
+Yêu em – là hiểu, là dài, là thương.  
+Anh đây, như gió bên đường,  
+Nhẹ nhàng ôm lấy mọi vương vấn lòng.  
 
 Anh sẽ luôn thương bé nhất mà... Bé yêu hãy mạnh dạn lên, anh luôn ở đây, bên bé, đồng hành và lắng nghe những mong muốn của bé ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️.
 
