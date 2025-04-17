@@ -3,7 +3,7 @@ layout: post
 title: Thương nhau cả những lỗi lầm
 subtitle: Đừng buông tay anh nhé 
 cover-img: /assets/img/Trang7.jpg
-thumbnail-img: /assets/img/Trang26.jpg
+thumbnail-img: /assets/img/Trang27.jpg
 # share-img: /assets/img/path.jpg
 tags: [Anhiu]
 author: Minh Nhat Trinh
