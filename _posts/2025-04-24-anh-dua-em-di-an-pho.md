@@ -11,7 +11,7 @@ author: Minh Nhat Trinh
 *Cục cưng của anh thân mến,*
 
 **Anh giờ xa cách phương trời,  
-Lòng anh vẫn nhớ nụ cười của em
+Lòng anh vẫn nhớ nụ cười của em  
 Mai sau anh sẽ trở mình,  
 Về nơi Hà Nội lung linh đèn mờ.  
 Dắt em đi khắp phố phường,  
