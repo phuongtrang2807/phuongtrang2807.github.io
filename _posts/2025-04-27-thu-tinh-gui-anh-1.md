@@ -3,7 +3,7 @@ layout: post
 title: Thư tình gửi anh 27/04/2025
 # subtitle: Excerpt from Soulshaping by Jeff Brown
 cover-img: /assets/img/path.jpg
-thumbnail-img: /assets/img/Trang30.png
+thumbnail-img: /assets/img/Trang30.jpg
 # share-img: /assets/img/Trang1.jpg
 tags: [Beiu]
 author: Em Bé Phương Trang
