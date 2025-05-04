@@ -25,7 +25,7 @@ Anh yêu đến mức chẳng thèm yêu ai.
 Chỉ mong em ở mãi hoài,  
 Đừng rời xa nhé, dù vài phút thôi.  
 
-Em yêu à, dù khoảng cách có xa đến đâu, trái tim anh vẫn luôn hướng về em mỗi ngày. Anh nhớ em nhiều lắm, nhớ nụ cười, nhớ giọng nói, nhớ cả những lúc mình cùng lặng im bên nhau. Anh biết có những lúc em mỏi mệt, nhưng xin em đừng buông tay anh nhé. Chỉ cần em vẫn đợi, anh sẽ vượt qua tất cả để trở về bên em. Đợi anh về, em yêu nhé. ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
+Em yêu à, dù khoảng cách có xa đến đâu, trái tim anh vẫn luôn hướng về em mỗi ngày. Anh nhớ em nhiều lắm, nhớ nụ cười, nhớ giọng nói, nhớ cả những lúc mình cùng lặng im bên nhau. Anh biết có những lúc em mỏi mệt, nhưng xin em đừng buông tay anh nhé. Chỉ cần em vẫn đợi, anh sẽ vượt qua tất cả để trở về bên em. Đợi anh về, em yêu nhé. ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️ x1 tỷ
 
 Người yêu của người tuyệt vời nhất thế gian,  
 Minh Nhat Trinh
