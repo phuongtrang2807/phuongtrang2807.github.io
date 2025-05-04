@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Gọi cho anh mỗi khi em thấy cần
+title: Anh sợ mất em lắm...
 # subtitle: Lời hẹn cuối năm
 cover-img: /assets/img/Trang7.jpg
 thumbnail-img: /assets/img/Trang33.jpg
