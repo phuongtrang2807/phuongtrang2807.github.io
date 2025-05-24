@@ -3,7 +3,7 @@ layout: post
 title: Thư tình gửi em 17/05/2025
 # subtitle: Lời hẹn cuối năm
 cover-img: /assets/img/Trang7.jpg
-thumbnail-img: /assets/img/Trang35.jpg
+thumbnail-img: /assets/img/Trang36.jpg
 # share-img: /assets/img/path.jpg
 tags: [Anhiu]
 author: Minh Nhat Trinh
