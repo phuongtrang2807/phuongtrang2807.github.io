@@ -1,7 +1,7 @@
 ---
 layout: post
-title: Lời hẹn đi dạo với em
-# subtitle: Lời hẹn cuối năm
+title: Tết thiếu nhi với em
+subtitle: Mãi là em bé của anh nhé
 cover-img: /assets/img/Trang7.jpg
 thumbnail-img: /assets/img/Trang38.jpg
 # share-img: /assets/img/path.jpg
