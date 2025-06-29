@@ -22,7 +22,7 @@ Làn da tựa nắng sớm chiều,
 Mịn màng như thể cánh diều trời cao.  
 Dáng em như dải lụa đào,  
 Nghiêng nghiêng giữa chốn chiêm bao mộng thường.  
-Một cười rạng rỡ thiên đường,  
+Nụ cười rạng rỡ thiên đường,  
 Khiến anh quên hết đoạn trường trần gian.  
 Nếu đời có chín kỳ quan,  
 Thì em là thứ mười – ngàn năm riêng.  
