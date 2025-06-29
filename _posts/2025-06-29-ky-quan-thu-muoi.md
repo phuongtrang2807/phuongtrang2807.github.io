@@ -26,7 +26,7 @@ Nụ cười rạng rỡ thiên đường,
 Khiến anh quên hết đoạn trường trần gian.  
 Nếu đời có chín kỳ quan,  
 Thì em là mười – ngàn năm riêng mình.  
-Không cần đá ngọc lung linh,
+Không cần đá ngọc lung linh,  
 Chỉ cần em đứng – nghiêng nghiêng đất trời.**  
 
 Phải, em không chỉ đẹp ở hình dung mà còn đẹp từ ánh mắt, nụ cười cho đến những điều giản dị nhất mà em làm mỗi ngày. Vai em mềm như mây, làn da em dịu như nắng, và ánh mắt em – nơi anh từng không ít lần trôi vào và chẳng muốn quay về nữa. 
