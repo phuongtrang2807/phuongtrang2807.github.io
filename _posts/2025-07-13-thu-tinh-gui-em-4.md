@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Thư tình gửi em 09/06/2025
+title: Thư tình gửi em 13/07/2025
 # subtitle: Mãi là em bé của anh nhé
 cover-img: /assets/img/Trang7.jpg
 thumbnail-img: /assets/img/Trang46.jpg
