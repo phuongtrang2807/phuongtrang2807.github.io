@@ -48,18 +48,19 @@ Theo cách trọn vẹn, mong manh nhưng bền
 Em ơi hãy ngủ thật êm  
 Anh ngồi đây viết – gửi em cả trời...**
 
-Anh không hoàn hảo, và có lẽ chẳng bao giờ là người yêu lý tưởng như trong phim ảnh. Nhưng anh hứa với em: anh sẽ yêu em bằng tất cả sự chân thành, bằng cách trọn vẹn nhất mà anh có thể.
+Anh không hoàn hảo, và có lẽ chẳng bao giờ là người yêu lý tưởng như trong phim ảnh. Nhưng anh hứa với em: anh sẽ yêu em bằng tất cả sự chân thành, bằng cách trọn vẹn nhất mà anh có thể.  
 
+```
+    yêu yêu yêu yêu  
+yêu yêu yêu yêu yêu yêu  
+yêu yêu yêu yêu yêu yêu  
+yêu yêu yêu yêu yêu yêu  
+  yêu yêu yêu yêu yêu  
+    yêu yêu yêu yêu  
+      yêu yêu yêu  
+        yêu em  
+          ❤️
+```
 Anh yêu em  
 Luôn luôn và mãi mãi  
-Chồng béo của em    
-
-    yêu yêu yêu yêu
-yêu yêu yêu yêu yêu yêu
-yêu yêu yêu yêu yêu yêu
-yêu yêu yêu yêu yêu yêu
-  yêu yêu yêu yêu yêu
-    yêu yêu yêu yêu
-      yêu yêu yêu
-        yêu em
-          ❤️
+Chồng béo của em        
