@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anh yêu em ở mọi dáng vẻ
+title: Anh sớm về với em
 # subtitle: Mãi là em bé của anh nhé
 cover-img: /assets/img/Trang7.jpg
 thumbnail-img: /assets/img/Trang53.jpg
