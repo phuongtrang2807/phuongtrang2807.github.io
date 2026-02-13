@@ -1,6 +1,6 @@
 ---
 layout: post
-title: 14/02/2026 Valentine của chúng mìnhmình
+title: 14/02/2026 Valentine của chúng mình
 # subtitle: Mãi là em bé của anh nhé
 cover-img: /assets/img/us.jpg
 thumbnail-img: /assets/img/us.jpg
@@ -36,6 +36,6 @@ Chờ anh nhé, cuối năm mình lại được bên nhau.
 
 
 
-Thương em vô cùng,
-Chồng iu của em,
+Thương em vô cùng,  
+Chồng iu của em,  
 Minh Nhat Trinh
