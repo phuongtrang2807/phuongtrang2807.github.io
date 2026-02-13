@@ -2,8 +2,8 @@
 layout: post
 title: 14/02/2026 Valentine của chúng mìnhmình
 # subtitle: Mãi là em bé của anh nhé
-cover-img: /assets/img/Trang7.jpg
-thumbnail-img: /assets/img/usus.jpg
+cover-img: /assets/img/us.jpg
+thumbnail-img: /assets/img/us.jpg
 # share-img: /assets/img/path.jpg
 tags: [Anhiu]
 author: Minh Nhat Trinh
