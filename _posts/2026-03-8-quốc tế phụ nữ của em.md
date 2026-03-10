@@ -3,7 +3,7 @@ layout: post
 title: 08/03/2026 Quốc tế phụ nữ của em
 # subtitle: Mãi là em bé của anh nhé
 cover-img: /assets/img/us.jpg
-thumbnail-img: /assets/img/Trang57Trang57.jpg
+thumbnail-img: /assets/img/Trang57.jpg
 # share-img: /assets/img/path.jpg
 tags: [Anhiu]
 author: Minh Nhat Trinh
